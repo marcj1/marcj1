@@ -1,9 +1,13 @@
-<!--START_SECTION:endorsements-->
-  ### Where to find me
+<h1><img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="30"/>   GUESS WHO‘S BACK. </h1>
+
+### Where to find me
   <a href=https://www.twitch.tv/lilcannon89>Twitch <img src="https://logos-marcas.com/wp-content/uploads/2020/11/Twitch-Emblema.png" width="30px"></a>  •
   <a href=https://www.youtube.com/channel/UCcbDXjeZ5x-f2nrEvmKoD9w>Youtube <img src="https://i.pinimg.com/originals/de/1c/91/de1c91788be0d791135736995109272a.png" width="30px"></a> •
   <a href="https://twitter.com/intent/follow?screen_name=lilcannon89">Twitter <img src="https://logos-marcas.com/wp-content/uploads/2020/04/Twitter-Logo.png" width="30px"></a> 
 </p>
+
+<!--START_SECTION:endorsements-->
+
 
 <!--START_SECTION:endorsements-->
 <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">   If you are here you already know a little what you are coming for.
