@@ -21,6 +21,6 @@
 <img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="30"/>   ¿And why should you follow me?
 ---------------------------------------------------
 
-⠀⠀Imagine this, a future where Github has just turned into a portal for the sale of dildos online due to a computer error, its successor Hubgit is now a dunghill invaded by neo-streamers with gigantic necklines who react to horrible video games sponsored by big clothing brands. At 97 years old, I have to be relegated to the last refuge, upload what little I have left to pornographic pages without sufficient security measures, and I can do it thanks to the fact that you are really going to follow me! Isn‘t it beautiful? No, it isn‘t. FOLLOW ME !!! 💉
+⠀⠀Imagine this, a future where Github has just turned into a portal for the sale of dildos online due to a computer error, its successor Hubgit is now a dunghill invaded by neo-streamers with gigantic necklines who react to horrible video games sponsored by big clothing brands. At 97 years old, I have to be relegated to the last refuge, upload what little I have left to pornographic pages without sufficient security measures, and I can do it thanks to the fact that you are really going to follow me! Isn‘t it beautiful? No, it isn‘t. FOLLOW ME !!! 
 
 
