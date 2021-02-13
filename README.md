@@ -1,4 +1,4 @@
-<h1>   GUESS WHO‘S BACK. </h1>
+<h1>   GUESS WHO‘S BACK.  <img src="https://i.pinimg.com/originals/87/73/03/87730314a01744f90728e26f5509ae3d.png" width="60"/> </h1>
   <a href=https://www.twitch.tv/lilcannon89>Twitch <img src="https://logos-marcas.com/wp-content/uploads/2020/11/Twitch-Emblema.png" width="30px"></a>  •
   <a href=https://www.youtube.com/channel/UCcbDXjeZ5x-f2nrEvmKoD9w>Youtube <img src="https://i.pinimg.com/originals/de/1c/91/de1c91788be0d791135736995109272a.png" width="30px"></a> •
   <a href="https://twitter.com/intent/follow?screen_name=lilcannon89">Twitter <img src="https://logos-marcas.com/wp-content/uploads/2020/04/Twitter-Logo.png" width="30px"></a> 
