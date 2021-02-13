@@ -1,3 +1,11 @@
+<!--START_SECTION:endorsements-->
+  ### Where to find me
+  <a href=https://www.twitch.tv/lilcannon89>Twitch <img src="https://logos-marcas.com/wp-content/uploads/2020/11/Twitch-Emblema.png" width="30px"></a>  •
+  <a href=https://www.youtube.com/channel/UCcbDXjeZ5x-f2nrEvmKoD9w>Youtube <img src="https://i.pinimg.com/originals/de/1c/91/de1c91788be0d791135736995109272a.png" width="30px"></a> •
+  <a href="https://twitter.com/intent/follow?screen_name=lilcannon89">Twitter <img src="https://logos-marcas.com/wp-content/uploads/2020/04/Twitter-Logo.png" width="30px"></a> 
+</p>
+
+<!--START_SECTION:endorsements-->
 <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">   If you are here you already know a little what you are coming for.
 ---------------------------------------------------
 
@@ -13,9 +21,3 @@ Imagine this, a future where Github has just turned into a portal for the sale o
 
 Isn‘t it beautiful? No. FOLLOW ME !!! 💉
 
-<!--START_SECTION:endorsements-->
-  ### Media
-  <a href=https://www.twitch.tv/lilcannon89>Twitch <img src="https://logos-marcas.com/wp-content/uploads/2020/11/Twitch-Emblema.png" width="30px"></a>  •
-  <a href=https://www.youtube.com/channel/UCcbDXjeZ5x-f2nrEvmKoD9w>Youtube <img src="https://i.pinimg.com/originals/de/1c/91/de1c91788be0d791135736995109272a.png" width="30px"></a> •
-  <a href="https://twitter.com/intent/follow?screen_name=lilcannon89">Twitter <img src="https://logos-marcas.com/wp-content/uploads/2020/04/Twitter-Logo.png" width="30px"></a> 
-</p>
