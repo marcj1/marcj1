@@ -21,5 +21,5 @@ Isn‘t it beautiful? No. FOLLOW ME !!!
   ### Media
   <a href=https://www.twitch.tv/lilcannon89>Twitch</a>  •
   <a href=https://www.youtube.com/channel/UCcbDXjeZ5x-f2nrEvmKoD9w>Youtube</a> •
-  <a href="https://twitter.com/intent/follow?screen_name=lilcannon89">Twitter</a> •
+  <a href="https://twitter.com/intent/follow?screen_name=lilcannon89">Twitter</a> 
 </p>
