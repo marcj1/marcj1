@@ -17,7 +17,7 @@ As if that weren't enough, this surprises me again and again, discovering with a
 But despite all that I have received from writing, there is a barrier, it is called time and it is giving me the ass. You sure weren't expecting to learn so much about my ass in this text. What a Johnny like me shouldn't give a damn for anyone, what would I have believed. I am not special. Ok, ok I have made an effort in my social media ... like so many others with theirs and so many people in their respective occupations. If you keep reading despite this, reconsider whether to follow me.
 
 <!--START_SECTION:endorsements-->
-<img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">   Other rules for my profile.
+<img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">  Rules for my profile.
 ---------------------------------------------------
 • 📏 I‘m very sorry for this joke.
 
