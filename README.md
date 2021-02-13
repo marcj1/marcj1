@@ -19,8 +19,7 @@ Isn‘t it beautiful? No. FOLLOW ME !!!
 -->
 <!--START_SECTION:endorsements-->
   ### Media
-  <p align="center"> 
   <a href=https://www.twitch.tv/lilcannon89>Twitch</a>  •
   <a href=https://www.youtube.com/channel/UCcbDXjeZ5x-f2nrEvmKoD9w>Youtube</a> •
-  <a href="https://twitter.com/intent/follow?screen_name=lilcannon89_p=followbutton">Twitter</a> •
+  <a href="https://twitter.com/intent/follow?screen_name=lilcannon89=followbutton">Twitter</a> •
 </p>
