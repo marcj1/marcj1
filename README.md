@@ -1,4 +1,7 @@
-### If you are here you already know a little what you are coming for 💉 
+<!--<h3 align="center">
+![image](https://user-images.githubusercontent.com/6764957/87082196-3418a980-c25d-11ea-9987-0d9787d54100.png)
+</h3> -->
+---------------------------------------------------
 But I guess a good billet makes this more beautiful. I've started a Github account, I've been looking how this works for a while and learning how not to fucking disgust and make content that at least doesn't waste your time.
 
 I love using social media, I like it so much that sometimes I want to shove whole profiles straight up my ass; Sometimes it also disgusts me, I have creative crises, I can't do anything decent and I want to blow my fucking brains out. But overall it's cool. What I'm trying to say is that I wish I could do my best.
