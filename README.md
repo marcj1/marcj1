@@ -33,4 +33,4 @@ Isn‘t it beautiful? No. FOLLOW ME !!! 💉
 ---------------------------------------------------
 • 📏 I‘m very sorry for this joke.
 
-• 📐 Please don‘t vomit.
+• 📐 Please don‘t barf.
