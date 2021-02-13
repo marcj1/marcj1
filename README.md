@@ -5,7 +5,7 @@
 </p>
 
 <!--START_SECTION:endorsements-->
-<img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="30"/>   If you are here you already know a little what you are coming for.
+<img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30"/>   If you are here you already know a little what you are coming for.
 ---------------------------------------------------
 
 But I guess a good billet makes this more beautiful. I've started a Github account, I've been looking how this works for a while and learning how not to fucking disgust and make content that at least doesn't waste your time. 
@@ -18,7 +18,7 @@ But despite all that I have received from writing, there is a barrier, it is cal
 
 
 <!--START_SECTION:endorsements-->
-<img src="https://i.pinimg.com/originals/0e/3e/e5/0e3ee551876e1ad2a39f89e4adf9168a.gif" width="30"/>   ¿And why should you follow me?
+<img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="30"/>   ¿And why should you follow me?
 ---------------------------------------------------
 
 Imagine this, a future where Github has just turned into a portal for the sale of dildos online due to a computer error, its successor Hubgit is now a dunghill invaded by neo-streamers with gigantic necklines who react to horrible video games sponsored by big clothing brands. At 97 years old, I have to be relegated to the last refuge, upload what little I have left to pornographic pages without sufficient security measures, and I can do it thanks to the fact that you are really going to follow me!
