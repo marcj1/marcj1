@@ -17,16 +17,18 @@ As if that weren't enough, this surprises me again and again, discovering with a
 But despite all that I have received from writing, there is a barrier, it is called time and it is giving me the ass. You sure weren't expecting to learn so much about my ass in this text. What a Johnny like me shouldn't give a damn for anyone, what would I have believed. I am not special. Ok, ok I have made an effort in my social media ... like so many others with theirs and so many people in their respective occupations. If you keep reading despite this, reconsider whether to follow me.
 
 <!--START_SECTION:endorsements-->
-<img src="https://i.pinimg.com/originals/0e/3e/e5/0e3ee551876e1ad2a39f89e4adf9168a.gif" width="30"/>   ¿And why should you follow me?
----------------------------------------------------
-
-Imagine this, a future where Github has just turned into a portal for the sale of dildos online due to a computer error, its successor Hubgit is now a dunghill invaded by neo-streamers with gigantic necklines who react to horrible video games sponsored by big clothing brands. At 97 years old, I have to be relegated to the last refuge, upload what little I have left to pornographic pages without sufficient security measures, and I can do it thanks to the fact that you are really going to follow me!
-
-Isn‘t it beautiful? No. FOLLOW ME !!! 💉
-
-<!--START_SECTION:endorsements-->
 <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">   Other rules for my profile.
 ---------------------------------------------------
 • 📏 I‘m very sorry for this joke.
 
 • 📐 Please don‘t vomit.
+
+<!--START_SECTION:endorsements-->
+<img src="https://i.pinimg.com/originals/0e/3e/e5/0e3ee551876e1ad2a39f89e4adf9168a.gif" width="30"/>   ¿And why should you follow me?
+---------------------------------------------------
+
+Imagine this, a future where Github has just turned into a portal for the sale of dildos online due to a computer error, its successor Hubgit is now a dunghill invaded by neo-streamers with gigantic necklines who react to horrible video games sponsored by big clothing brands. At 97 years old, I have to be relegated to the last refuge, upload what little I have left to pornographic pages without sufficient security measures, and I can do it thanks to the fact that you are really going to follow me!
+
+Isn‘t it beautiful? No, it isn‘t. FOLLOW ME !!! 💉
+
+
