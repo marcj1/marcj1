@@ -23,6 +23,12 @@ But despite all that I have received from writing, there is a barrier, it is cal
 
 • 📐 Please don‘t vomit.
 
+• 📏 It‘s just a joke, not a choke
+
+• 📐 For real don‘t report me
+
+(Please)
+
 <!--START_SECTION:endorsements-->
 <img src="https://i.pinimg.com/originals/0e/3e/e5/0e3ee551876e1ad2a39f89e4adf9168a.gif" width="30"/>   ¿And why should you follow me?
 ---------------------------------------------------
