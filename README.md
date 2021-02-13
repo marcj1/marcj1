@@ -1,4 +1,4 @@
-<img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">  If you are here you already know a little what you are coming for.
+<img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">   If you are here you already know a little what you are coming for.
 ---------------------------------------------------
 
 But I guess a good billet makes this more beautiful. I've started a Github account, I've been looking how this works for a while and learning how not to fucking disgust and make content that at least doesn't waste your time. 
