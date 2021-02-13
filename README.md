@@ -5,7 +5,11 @@
 </p>
 
 <!--START_SECTION:endorsements-->
+<img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">   Rules of my profile.
+---------------------------------------------------
+• 📏 I‘m very sorry for this joke.
 
+• 📐 Please don‘t vomit.
 
 <!--START_SECTION:endorsements-->
 <img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="30"/>   If you are here you already know a little what you are coming for.
@@ -28,9 +32,4 @@ Imagine this, a future where Github has just turned into a portal for the sale o
 Isn‘t it beautiful? No. FOLLOW ME !!! 💉
 
 
-<!--START_SECTION:endorsements-->
-<img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">   Rules of my profile.
----------------------------------------------------
-• 📏 I‘m very sorry for this joke.
 
-• 📐 Please don‘t vomit.
