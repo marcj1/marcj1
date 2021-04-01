@@ -1,7 +1,7 @@
 <h1>   LOSE YOURSELF. </h1>
   <a href=https://www.twitch.tv/cannonliar>Twitch <img src="https://logos-marcas.com/wp-content/uploads/2020/11/Twitch-Emblema.png" width="30px"></a>  •
   <a href=https://www.youtube.com/channel/UCcbDXjeZ5x-f2nrEvmKoD9w>Youtube <img src="https://i.pinimg.com/originals/de/1c/91/de1c91788be0d791135736995109272a.png" width="30px"></a> •
-  <a href="https://twitter.com/intent/follow?screen_name=cannonliar">Twitter <img src="https://logos-marcas.com/wp-content/uploads/2020/04/Twitter-Logo.png" width="30px"></a> 
+  <a href="https://twitter.com/intent/follow?screen_name=">Twitter <img src="https://logos-marcas.com/wp-content/uploads/2020/04/Twitter-Logo.png" width="30px"></a> 
 </p>
 
 <!--START_SECTION:endorsements-->
