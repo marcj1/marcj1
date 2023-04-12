@@ -1,4 +1,4 @@
-<h1>   LOSE YOURSELF. </h1>
+<h1>   Hey! </h1>
   <a href=https://www.twitch.tv/cannonliar>Twitch <img src="https://logos-marcas.com/wp-content/uploads/2020/11/Twitch-Emblema.png" width="30px"></a>  •
   <a href=https://www.youtube.com/channel/UCcbDXjeZ5x-f2nrEvmKoD9w>Youtube <img src="https://i.pinimg.com/originals/de/1c/91/de1c91788be0d791135736995109272a.png" width="30px"></a> •
   <a href="https://twitter.com/intent/follow?screen_name=">Twitter <img src="https://logos-marcas.com/wp-content/uploads/2020/04/Twitter-Logo.png" width="30px"></a> 
@@ -18,9 +18,9 @@
 
 
 <!--START_SECTION:endorsements-->
-<img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="30"/>   ¿Why should you suck my dick?
+<img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="30"/>   ¿Why should you be interested in my projects?
 ---------------------------------------------------
 
-⠀⠀Imagine this, a future where Github has just turned into a portal for the sale of dildos online due to a computer error, its successor Hubgit is now a dunghill invaded by neo-streamers with gigantic necklines who react to horrible video games sponsored by big clothing brands. At 97 years old, I have to be relegated to the last refuge, upload what little I have left to pornographic pages without sufficient security measures, and I can do it thanks to the fact that you are really going to suck my dick! Isn‘t it beautiful? No, it isn‘t. GIVE ME YOUR MONEY!!! 
+⠀⠀Imagine this, a future where Github has just turned into a portal for the sale of dildos online due to a computer error, its successor Hubgit is now a dunghill invaded by neo-streamers with gigantic necklines who react to horrible video games sponsored by big clothing brands. At 97 years old, I have to be relegated to the last refuge, upload what little I have left to pornographic pages without sufficient security measures, and I can do it thanks to the fact that you are really going to follow my projects! Isn‘t it beautiful? No, it isn‘t. GIVE ME YOUR MONEY!!! 
 
 
